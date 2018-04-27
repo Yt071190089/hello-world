@@ -1,6 +1,6 @@
 # hello-world
 initial project
 
-hello everyone. work up
+hello yt. work up
 i love u
 i like him
